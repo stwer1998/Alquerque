@@ -3,7 +3,7 @@
 
 Описание : https://www.mastersofgames.com/rules/alquerque-rules.htm
 
-Демо : https://www.youtube.com/watch?v=M3VARJ0uqjQ&t=4s
+Демо : https://www.youtube.com/watch?v=M3VARJ0uqjQ
 
 ### Оборудование
 
